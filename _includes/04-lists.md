@@ -1,0 +1,3 @@
+* Cycling 🚴
+* Food ♥️
+* Exercise 🏃‍♂️
